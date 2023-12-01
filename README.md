@@ -1,3 +1,2 @@
-- [papers](https://drive.proton.me/urls/PHY0FWA8DW#cOhN6AaqL9Ki)
-- [n](https://drive.proton.me/urls/1FNZKHRH8M#NUFYKV8KxWLr)
-- [record](https://drive.proton.me/urls/QE91WDFSZ4#xwnthPhDEhbh)
+- [writing](https://drive.proton.me/urls/HBGM595XYC#UARj6qWKPy0D)
+- [responses](https://drive.proton.me/urls/17BPBJ1X7C#i4svizljlHjd)
