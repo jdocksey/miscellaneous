@@ -1,2 +1,2 @@
 - [singing](https://drive.proton.me/urls/3TQJ1P0HMG#5DFk1T4ZoHD5)
-- [friend](https://drive.proton.me/urls/K2N75MZSHC#1vqAQ6sPxMJC)
+- [friend](https://drive.proton.me/urls/QFMER2FHDC#qElR3avtoNkb)
