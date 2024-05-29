@@ -1,5 +1,2 @@
-- [bridge](https://drive.proton.me/urls/REQHXW86X0#MOzf7Erwpw6o)
-- [music](https://drive.proton.me/urls/YAG8MXE5NW#yXzV8HKkRLL8)
-- [games](https://drive.proton.me/urls/YJJ72KRD4W#UBpeZnYobFK9)
-- [traveling](https://drive.proton.me/urls/KQ5XVRJ454#P7GJKDWccWcS)
 - [singing](https://drive.proton.me/urls/3TQJ1P0HMG#5DFk1T4ZoHD5)
+- [friend](https://drive.proton.me/urls/K2N75MZSHC#1vqAQ6sPxMJC)
